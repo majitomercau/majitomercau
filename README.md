@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @majitomercau
-- 👀 I’m interested in UX/UI and UX Reaserch
+- 👀 I’m interested in UX/UI Design and UX Reaserch
 - 🌱 I’m currently learning Applied Technology @BYU Idaho
 - 💞️ I’m looking to collaborate on UX Design proyects
 - 📫 How to reach me mariajosemercauortiz@gmail.com
